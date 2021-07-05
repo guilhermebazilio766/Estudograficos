@@ -1,2 +1,1 @@
 # Estudograficos
- * Es
